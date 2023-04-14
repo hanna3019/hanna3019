@@ -6,7 +6,7 @@ Hey there!😃<br/>
 I'm a junior web developer who like working with people and learning from my mistakes.<br/>
 I also love teddy bear🧸 and chocolate🍫<br/>
 
-My dream is making a web site which everyone can use easily.<br/>
+My dream is making a website which everyone can use easily.<br/>
 I will do my best for 'No Digital blind spot'!👊🏻<br/><br/><br/>
 
 👇🏻I've used skills below at least once👇🏻<br/><br/>
